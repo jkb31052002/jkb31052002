@@ -7,3 +7,5 @@
 - 📫 How to reach me **jkb9545@gmail.com**
 
 - ⚡ About me **I am also Passionate about Art and Literature**
+
+- 📫 My LinkedIn **https://www.linkedin.com/in/jay-bathiya-990356166**
